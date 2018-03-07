@@ -1,0 +1,2 @@
+# oneletrajz
+önéletrajz
